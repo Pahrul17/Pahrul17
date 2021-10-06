@@ -1,0 +1,5 @@
+- 👋 hallo anty
+- 👀 aku sangat mencintaimu
+- 🌱 kamu jangan pernah tinggalkan aku ya
+- 💞️ I LOVE YOU
+- 📫 stay mith me
